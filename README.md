@@ -1,5 +1,5 @@
 # 💫 About Me:
-I build things that work ⚙️, automate things that are boring 🥱!
+I build things that work ⚙️, automate things that are boring 🥱
 
 Coffee lover ☕❤️
 
